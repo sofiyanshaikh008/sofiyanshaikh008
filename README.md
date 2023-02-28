@@ -8,7 +8,7 @@ I'm [Sofiyan](https://github.com/sofiyanshaikh008), An Aspiring Java Backend Dev
 I'm an Object-oriented, design Self-motivated and curious, with a keen interest in building user-centric products. Looking forward to honing my skills in a challenging work environment<br/>
 
 
-  💼 Do reach [email](mailto:sofiyanshaikh008@gmail.com). <br/>
+  💼 Do reach [email](mailto:sofiyanshaikh008@gmail.com). sofiyanshaikh008@gmail.com <br/>
   💬 Ask me about anything, i would love to help 😄 <br/>
   👨‍💻 Checkout my [Portfolio](https://sofiyanshaikh008.github.io/) & [my linkedin profile](https://www.linkedin.com/in/sofiyan-shaikh-30b48319a/) <br/>
   
